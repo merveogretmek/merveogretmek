@@ -15,7 +15,7 @@
 
 -  📫 How to reach me **merve.ogretmek@gmail.com**
 
--  📄 Know about my experiences [aquamarine-trixy-66.tiiny.site](aquamarine-trixy-66.tiiny.site)
+-  📄 Know about my experiences [Online CV](aquamarine-trixy-66.tiiny.site)
 
 -  ⚡ In my free time **I love boxing, digital drawing, and crafts**
 
