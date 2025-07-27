@@ -15,7 +15,7 @@
 
 -  📫 How to reach me **merve.ogretmek@gmail.com**
 
--  📄 Know about my experiences [Online CV](https://coffee-ellyn-38.tiiny.site/)
+-  📄 Know about my experiences [Online CV](https://drive.google.com/file/d/1U2ID_n6oYwzcxhsBFmIJMBXO21GmLR9S/view?usp=sharing)
 
 -  ⚡ In my free time **I love boxing, digital drawing, and crafts**
 
